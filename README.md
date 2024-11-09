@@ -40,9 +40,13 @@ PHP Web Developer
 +91 9205329258
 
 LinkedIn: [Jatin Singh | PHP WEB DEVELOPER IN DELHI NCR](https://www.youtube.com%2F@www.youtube.com/@roaming_views)
+
 Portfolio : [Best Web/PHP Developer in Delhi NCR](https://singhjatin08.github.io/developerJatin/)
+
 Facebook : [Jatin Singh](https://www.facebook.com/singhjatin08)
+
 Instagram : [Login • Instagram](https://www.instagram.com/roaming_views_official/)
+
 YouTube : [Roaming Views](https://www.youtube.com%2F@www.youtube.com/@roaming_views)
 
 <!---
